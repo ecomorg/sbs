@@ -5,78 +5,84 @@ Language: English
 
 ---
 Taoing
-The way you can go
-isn’t the real way.
-The name you can say
-isn’t the real name.
-Heaven and earth
-begin in the unnamed:
-name’s the mother
-of the ten thousand things.
-So the unwanting soul
-sees what’s hidden,
-and the ever-wanting soul
-sees only what it wants.
-Two things, one origin,
-but different in name,
-whose identity is mystery.
-Mystery of all mysteries!
-The door to the hidden.
+
+The way you can go   
+isn’t the real way.   
+The name you can say   
+isn’t the real name.   
+Heaven and earth 
+begin in the unnamed:  
+name’s the mother  
+of the ten thousand things.  
+So the unwanting soul  
+sees what’s hidden,  
+and the ever-wanting soul  
+sees only what it wants.  
+Two things, one origin,  
+but different in name,  
+whose identity is mystery.  
+Mystery of all mysteries!  
+The door to the hidden.  
+
 A satisfactory translation of this chapter is, I believe, perfectly impossible. It contains the book. I think of it as the Aleph, in Borges’s story: if you see it rightly, it contains everything.
 
 ---
 Soul food
-Everybody on earth knowing
-that beauty is beautiful
-makes ugliness.
-Everybody knowing
-that goodness is good
-makes wickedness.
-For being and nonbeing
-arise together;
-hard and easy
-complete each other;
-long and short
-shape each other;
-high and low
-depend on each other;
-note and voice
-make the music together;
-before and after
-follow each other.
-That’s why the wise soul
-does without doing,
-teaches without talking.
-The things of this world
-exist, they are;
-you can’t refuse them.
-To bear and not to own;
-to act and not lay claim;
-to do the work and let it go:
-for just letting it go
-is what makes it stay.
+
+Everybody on earth knowing  
+that beauty is beautiful  
+makes ugliness.  
+Everybody knowing  
+that goodness is good  
+makes wickedness.  
+For being and nonbeing  
+arise together;  
+hard and easy  
+complete each other;  
+long and short  
+shape each other;  
+high and low  
+depend on each other;  
+note and voice  
+make the music together;  
+before and after  
+follow each other.  
+That’s why the wise soul  
+does without doing,  
+teaches without talking.  
+The things of this world  
+exist, they are;  
+you can’t refuse them.  
+To bear and not to own;  
+to act and not lay claim;  
+to do the work and let it go:  
+for just letting it go  
+is what makes it stay.  
+
 One of the things I read in this chapter is that values and beliefs are not only culturally constructed but also part of the interplay of yin and yang, the great reversals that maintain the living balance of the world. To believe that our beliefs are permanent truths which encompass reality is a sad arrogance. To let go of that belief is to find safety.
 
 ---
 Hushing
-Not praising the praiseworthy
-keeps people uncompetitive.
-Not prizing rare treasures
-keeps people from stealing.
-Not looking at the desirable
-keeps the mind quiet.
-So the wise soul
-governing people
-would empty their minds,
-fill their bellies,
-weaken their wishes,
-strengthen their bones,
-keep people unknowing,
-unwanting,
-keep the ones who do know
-from doing anything.
-When you do not-doing,
-nothing’s out of order.
+
+Not praising the praiseworthy  
+keeps people uncompetitive.  
+Not prizing rare treasures  
+keeps people from stealing.  
+Not looking at the desirable  
+keeps the mind quiet.  
+So the wise soul  
+governing people  
+would empty their minds,  
+fill their bellies,  
+weaken their wishes,  
+strengthen their bones,  
+keep people unknowing,  
+unwanting,  
+keep the ones who do know  
+from doing anything.  
+When you do not-doing,  
+nothing’s out of order.  
+
 Over and over Lao Tzu says wei wu wei: Do not do. Doing not-doing. To act without acting. Action by inaction. You do nothing yet it gets done. . . .
 
 It’s not a statement susceptible to logical interpretation, or even to a syntactical translation into English; but it’s a concept that transforms thought radically, that changes minds. The whole book is both an explanation and a demonstration of it.
