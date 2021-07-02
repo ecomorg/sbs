@@ -1,8 +1,7 @@
-Title: Tao Te Ching  
-Author: Ursula Le Guin & J.P. Seaton    
+Translator: Ursula Le Guin   
 Year: 2011  
-Language: English    
-Code: ull
+Source: her book  
+Code: ulg
   
 ---  
 Taoing  
